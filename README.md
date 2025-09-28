@@ -1,4 +1,6 @@
-# Websitekuu
-Alamak duit ni
+# Websiteku Panel Control Bot Tele
+Alamak duit ni🗿
 # link website
-"https://web-psi-lyart.vercel.app"
+ *https://panel-controls-yanz.vercel.app/*
+# Janlup Star nya yak
+kontol 
